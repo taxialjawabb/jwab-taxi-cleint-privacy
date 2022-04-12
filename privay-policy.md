@@ -30,4 +30,4 @@ axijwab client reserve the right to update or change our Privacy Policy at any t
 
 ## Contact Information
 
-For any questions or concerns regarding the privacy policy, please send axijwab client an email to jwabtxia@gmail.com.
+For any questions or concerns regarding the privacy policy, please send axijwab client an email to jwabtaxi@gmail.com.
